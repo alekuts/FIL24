@@ -34,7 +34,7 @@ Nichts
 Виконати завдання 2 і 4 ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343529149087617094/IMG_20250224_114419.jpg?ex=67bd9a86&is=67bc4906&hm=d0a2fec7e2d4eabe85424026970410790ceed38e8845a6e5828dcaf72d9f7c49&) <br> <br>
 (Старе завдання) написати по 10 речень про 2 українських національних страв "чому вони такі смачні" саме для тебе
 ### Фонетикa
-Подивитись ці два відео [![Speech anatomy](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc), [Speech organs](https://m.youtube.com/watch?v=4KDkHvvksAE)
+Подивитись ці два відео [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
 ### Граматикa
 Помилка
 ### Німецькa
