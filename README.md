@@ -34,7 +34,7 @@ Nichts
 Виконати завдання 2 і 4 [звідси](https://cdn.discordapp.com/attachments/1278376988490596466/1343529149087617094/IMG_20250224_114419.jpg?ex=67bd9a86&is=67bc4906&hm=d0a2fec7e2d4eabe85424026970410790ceed38e8845a6e5828dcaf72d9f7c49&) <br> <br>
 (Старе завдання) написати по 10 речень про 2 укр нац страв "чому вони такі смачні" < саме для тебе
 ### Фонетикa
-Подивитись ці два відео [Speech anatomy](https://m.youtube.com/watch?v=-m-gudHhLxc), [Speech organs(https://m.youtube.com/watch?v=4KDkHvvksAE)
+Подивитись ці два відео [Speech anatomy](https://m.youtube.com/watch?v=-m-gudHhLxc), [Speech organs](https://m.youtube.com/watch?v=4KDkHvvksAE)
 ### Граматикa
 Помилка
 ### Німецькa
