@@ -62,5 +62,4 @@
 Повторити часи та reported speech (непряма мова)
 
 ### Німецькa
-Виконати завдання С6 (до нього йде таке аудіо в групі з Куратором) ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343590924017598474/IMG_20250224_163009.jpg?ex=67bdd40e&is=67bc828e&hm=10710cbb1225a3de508a4948ef979c8c4a29d8b5e0d75a99b33cb6f30af31ceb&) ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343589402030641152/IMG_20250224_162427.jpg?ex=67bdd2a4&is=67bc8124&hm=d40efcd587c9c4bf108b5af75adc153a7884157f42e73bd88a5047ccbad2b651&) <br>
-Та С7, С8 ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343590932594954332/IMG_20250224_163028.jpg?ex=67bdd411&is=67bc8291&hm=2fb7caed7282c6a7719ac4e377aca75928a08480f9ae45d7e5c3a8b96c897dd4&)
+Виокнати завдання завдання на картинці ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343918074759483433/IMG_20250225_140905.jpg?ex=67bf04bd&is=67bdb33d&hm=4d225404b0162c363230f92e53d581c71ce6de7d43b590cd2633a62c66f00ff8&)
