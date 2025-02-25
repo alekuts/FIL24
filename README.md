@@ -33,7 +33,7 @@
 ## 1-ша підгрупа
 
 ## Розклад занять
-![](https://cdn.discordapp.com/attachments/1278376988490596466/1343907375588839434/IMG_20250225_132733.jpg?ex=67befac6&is=67bda946&hm=16d4dac8a920b306b4c3ca015a2320fd75d00b395ba05e0bf8cba3339b641069&) <br> <br>
+![](https://cdn.discordapp.com/attachments/1278376988490596466/1343962685217308737/IMG_20250225_170741.jpg?ex=67bf2e49&is=67bddcc9&hm=aa3e5f0a2b9775ec8201163051e728af1799f963a0dda7814ca1320ab81d9023&) <br> <br>
 
 ### АЧРП
 
