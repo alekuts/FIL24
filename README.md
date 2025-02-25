@@ -34,7 +34,7 @@
 ### Граматика
 
 ### Німецька
-Записати слова з цього файлу [Wörterbuch 2.docx](https://cdn.discordapp.com/attachments/1278376988490596466/1343892648850755584/Worterbuch_2.docx?ex=67beed0f&is=67bd9b8f&hm=07fd70a3f609820adf7c2a8c35710b394792729750f4c85e2e263b098418e143&)
+Записати слова з цього файлу [Wörterbuch 2.docx](https://cdn.discordapp.com/attachments/1278376988490596466/1343892648850755584/Worterbuch_2.docx?ex=67beed0f&is=67bd9b8f&hm=07fd70a3f609820adf7c2a8c35710b394792729750f4c85e2e263b098418e143&) <br>
 Та зробити вправу 5 на сторінці 37 ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343891953565044838/IMG_20250225_122637.jpg?ex=67beec6a&is=67bd9aea&hm=1fa37a48b3022bfcfa636e027d5e62fea3df718fea05195a8789d5f13b3aa5ca&) <br> <br>
 
 ## 2-га підгрупа
