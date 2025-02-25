@@ -36,6 +36,8 @@
 ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343962685217308737/IMG_20250225_170741.jpg?ex=67bf2e49&is=67bddcc9&hm=aa3e5f0a2b9775ec8201163051e728af1799f963a0dda7814ca1320ab81d9023&) <br> <br>
 
 ### АЧРП
+Виконати вправи 4 та 7 (підр. Карабан)
+![](https://cdn.discordapp.com/attachments/1278376988490596466/1343993635678589080/IMG_20250225_191005.jpg?ex=67bf4b1c&is=67bdf99c&hm=d6c617cd6ed1d56faabb82124235f94a4b4fe8ca976c854ad0f97dcdc8c6bd6e&) ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343993643207360622/IMG_20250225_191018.jpg?ex=67bf4b1e&is=67bdf99e&hm=690df74b7e0234d28ef60620deb9438f4c6a4d41e42449ef0635d9d407f77931&)
 
 ### Фонетика
 
