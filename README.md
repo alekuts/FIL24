@@ -48,7 +48,7 @@
 ## 2-га підгрупа
 
 ## Розклaд
-[2-га підгрупа](https://cdn.discordapp.com/attachments/1278376988490596466/1343907385474945044/IMG_20250225_132754.jpg?ex=67befac9&is=67bda949&hm=f933b3ab1b8d2a9bc63bfc86b7fdb02e851bb86710894d25149b04aa6992bb15&) <br> <br>
+![](https://cdn.discordapp.com/attachments/1278376988490596466/1343907385474945044/IMG_20250225_132754.jpg?ex=67befac9&is=67bda949&hm=f933b3ab1b8d2a9bc63bfc86b7fdb02e851bb86710894d25149b04aa6992bb15&) <br> <br>
 
 
 ### АЧPП
