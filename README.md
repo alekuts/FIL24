@@ -1,3 +1,13 @@
+# Сторінка
+
+# Zoom посилання
+* [Література](https://us02web.zoom.us/j/83557906189?pwd=b1lMazhmV1c4WXVsNCtzOXlFclU0dz09)
+* [Мовна комунікація](https://us02web.zoom.us/j/5334706164?pwd=em8zWXlScTVadFpyN0VJOExPdlk0dz09#success)
+* [АЧРП](https://us02web.zoom.us/j/83724452164?pwd=Vjd4OHZEVFZwa2RZNzVmZUd1WXhRQT09)
+* [Фонетика](https://us02web.zoom.us/j/87668507310?pwd=HieFq7h019CurutwC4WqSuagQ2yaVC.1#success)
+* [Граматика](https://us02web.zoom.us/j/81895567150?pwd=L2ZKTU9GdDBOMFlyWjVBK2lDbWI4dz09)
+* [Німецька](https://us02web.zoom.us/j/82529814130?pwd=xGbiaHTjbcvyVoSXRrIQg69tcMQbLx.1#success) <br> <br>
+
 # Домашнє завдання
 
 [Спільне](#спільне)
