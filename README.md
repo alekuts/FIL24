@@ -50,8 +50,7 @@
 ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343962685217308737/IMG_20250225_170741.jpg?ex=67bf2e49&is=67bddcc9&hm=aa3e5f0a2b9775ec8201163051e728af1799f963a0dda7814ca1320ab81d9023&) <br> <br>
 
 ### АЧРП
-Виконати вправи 4 та 7 (підр. Карабан)
-![](https://cdn.discordapp.com/attachments/1278376988490596466/1343993635678589080/IMG_20250225_191005.jpg?ex=67bf4b1c&is=67bdf99c&hm=d6c617cd6ed1d56faabb82124235f94a4b4fe8ca976c854ad0f97dcdc8c6bd6e&) ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343993643207360622/IMG_20250225_191018.jpg?ex=67bf4b1e&is=67bdf99e&hm=690df74b7e0234d28ef60620deb9438f4c6a4d41e42449ef0635d9d407f77931&)
+"Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663145691742258/IMG_20250227_152742.jpg?ex=67c1baa4&is=67c06924&hm=e0ea14f59cb9ebf5b0384722b6c2ee55b142fe9e6cd9e501ff185645f7a05c2c&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146148794391/IMG_20250227_153030.jpg?ex=67c1baa4&is=67c06924&hm=27e4a225722efdc14875012c815da1e6e6566d4f916deeea052edb903d49ed38&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146509369434/IMG_20250227_153058.jpg?ex=67c1baa4&is=67c06924&hm=3d40d554f0a451a0aaba3a6abff9be9d9fa37d57dccca95916a1be6da0889eff&)
 
 ### Фонетика
 
@@ -68,8 +67,7 @@
 
 
 ### АЧPП
-Виконати завдання 2 і 4 ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344298693037133887/IMG_20250226_152157.jpg?ex=67c06738&is=67bf15b8&hm=2e4e0c5c6de1de95b66b1593dff467262947e4433e5a67b78805f16f2966de57&) ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343529149087617094/IMG_20250224_114419.jpg?ex=67bd9a86&is=67bc4906&hm=d0a2fec7e2d4eabe85424026970410790ceed38e8845a6e5828dcaf72d9f7c49&) <br> <br>
-(Старе завдання) написати по 10 речень про 2 українських національних страв "чому вони такі смачні" саме для тебе
+"Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663145691742258/IMG_20250227_152742.jpg?ex=67c1baa4&is=67c06924&hm=e0ea14f59cb9ebf5b0384722b6c2ee55b142fe9e6cd9e501ff185645f7a05c2c&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146148794391/IMG_20250227_153030.jpg?ex=67c1baa4&is=67c06924&hm=27e4a225722efdc14875012c815da1e6e6566d4f916deeea052edb903d49ed38&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146509369434/IMG_20250227_153058.jpg?ex=67c1baa4&is=67c06924&hm=3d40d554f0a451a0aaba3a6abff9be9d9fa37d57dccca95916a1be6da0889eff&)
 
 ### Фонетикa
 Подивитись ці два відео [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
