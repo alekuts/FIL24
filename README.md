@@ -41,7 +41,7 @@
 
 ### Мовна комунікація
 Подивитися презентацію
-![](https://cdn.discordapp.com/attachments/1278376988490596466/1343600436535361607/IMG_20250224_170812.jpg?ex=67bddcea&is=67bc8b6a&hm=316f30602f4e32e275baf0feb481eec06706fc23aa42dae1e1fa409c04c08930&)
+![](img/otmk.jpg)
 Розповісти про одну функцію мови <br> <br>
 
 ## 1-ша підгрупа
@@ -50,7 +50,7 @@
 ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343962685217308737/IMG_20250225_170741.jpg?ex=67bf2e49&is=67bddcc9&hm=aa3e5f0a2b9775ec8201163051e728af1799f963a0dda7814ca1320ab81d9023&) <br> <br>
 
 ### АЧРП
-"Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663145691742258/IMG_20250227_152742.jpg?ex=67c1baa4&is=67c06924&hm=e0ea14f59cb9ebf5b0384722b6c2ee55b142fe9e6cd9e501ff185645f7a05c2c&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146148794391/IMG_20250227_153030.jpg?ex=67c1baa4&is=67c06924&hm=27e4a225722efdc14875012c815da1e6e6566d4f916deeea052edb903d49ed38&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146509369434/IMG_20250227_153058.jpg?ex=67c1baa4&is=67c06924&hm=3d40d554f0a451a0aaba3a6abff9be9d9fa37d57dccca95916a1be6da0889eff&)
+"Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](img/acrp.jpg) ![](img/acrp2.jpg) ![](img/acrp3.jpg) 
 
 ### Фонетика
 
@@ -58,7 +58,7 @@
 
 ### Німецька
 Записати слова з цього файлу [Wörterbuch 2.docx](https://cdn.discordapp.com/attachments/1278376988490596466/1343892648850755584/Worterbuch_2.docx?ex=67beed0f&is=67bd9b8f&hm=07fd70a3f609820adf7c2a8c35710b394792729750f4c85e2e263b098418e143&) <br>
-Та зробити вправу 5 на сторінці 37 ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343891953565044838/IMG_20250225_122637.jpg?ex=67beec6a&is=67bd9aea&hm=1fa37a48b3022bfcfa636e027d5e62fea3df718fea05195a8789d5f13b3aa5ca&) <br> <br>
+Та зробити вправу 5 на сторінці 37 ![](img/german.jpg) <br> <br>
 
 ## 2-га підгрупа
 
@@ -67,7 +67,7 @@
 
 
 ### АЧPП
-"Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663145691742258/IMG_20250227_152742.jpg?ex=67c1baa4&is=67c06924&hm=e0ea14f59cb9ebf5b0384722b6c2ee55b142fe9e6cd9e501ff185645f7a05c2c&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146148794391/IMG_20250227_153030.jpg?ex=67c1baa4&is=67c06924&hm=27e4a225722efdc14875012c815da1e6e6566d4f916deeea052edb903d49ed38&) ![](https://cdn.discordapp.com/attachments/1344248576745803809/1344663146509369434/IMG_20250227_153058.jpg?ex=67c1baa4&is=67c06924&hm=3d40d554f0a451a0aaba3a6abff9be9d9fa37d57dccca95916a1be6da0889eff&)
+"Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](img/acrp.jpg) ![](img/acrp2.jpg) ![](img/acrp3.jpg)
 
 ### Фонетикa
 Подивитись ці два відео [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
@@ -77,4 +77,4 @@
 
 ### Німецькa
 Повторити словничок (пізніше буде тут), весь пройдений матеріал <br>
-Виконати завдання завдання на картинці ![](https://cdn.discordapp.com/attachments/1278376988490596466/1343918074759483433/IMG_20250225_140905.jpg?ex=67bf04bd&is=67bdb33d&hm=4d225404b0162c363230f92e53d581c71ce6de7d43b590cd2633a62c66f00ff8&)
+Виконати завдання завдання на картинці ![](img/german2.png)
