@@ -69,7 +69,7 @@
 "Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](img/acrp.jpg) ![](img/acrp2.jpg) ![](img/acrp3.jpg)
 
 ### Фонетикa
-Подивитись ці два відео [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
+Подивитись ці три відео [![](https://i.ytimg.com/vi_webp/Ueelu-2SalU/maxresdefault.webp)](https://www.youtube.com/watch?v=Ueelu-2SalU) [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
 
 ### Граматикa
 Повторити часи та reported speech (непряма мова)
