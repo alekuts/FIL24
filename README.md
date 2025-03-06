@@ -66,7 +66,9 @@
 Подивитись ці три відео [![](https://i.ytimg.com/vi_webp/Ueelu-2SalU/maxresdefault.webp)](https://www.youtube.com/watch?v=Ueelu-2SalU) [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
 
 ### Граматикa
-Повторити часи та reported speech (непряма мова)
+[Часи](https://grammarway.com/ua/all-verb-tenses) <br> <br>
+
+Повторити reported speech (непряма мова)
 
 ### Німецькa
 Потрохи вчити [словничок](https://cdn.discordapp.com/attachments/1344249786777468990/1346234528678674432/Worterbuch_2.docx?ex=67c7721b&is=67c6209b&hm=43c4c238fbaf5f428baaf9b3965867c2624519a3fca36ce62f14ca61a1d9014f&) та весь пройдений матеріал (можлива контрольна) <br>
