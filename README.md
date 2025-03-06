@@ -60,7 +60,7 @@
 ![](img/tt2.jpg) <br> <br>
 
 ### АЧPП
-Essay: Ukrainian cuisine: 4 best-known dishes <br> <br>
+Написати есе "Four ukrainian dishes" <br> <br>
 
 "Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](img/acrp2-1.jpg) ![](img/acrp2-2.jpg) ![](img/acrp2-3.jpg)
 
