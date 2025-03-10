@@ -60,7 +60,9 @@
 ### АЧPП
 Написати есе "Four ukrainian dishes" <br> <br>
 
-"Добрий ранок, нажаль змушена бути на нарадах в університеті під час нашої пари, тому надсилаю наступне завдання: підручник Карабана p. 210-211 Ex. 1, 2, 3; p. 211-212 Text and Ex. 2, 3 p. 213" ![](img/acrp2-1.jpg) ![](img/acrp2-2.jpg) ![](img/acrp2-3.jpg)
+Виконати це завдання
+![](img/acrp2-1.jpg)
+
 
 ### Фонетикa
 Подивитись ці три відео [![](https://i.ytimg.com/vi_webp/Ueelu-2SalU/maxresdefault.webp)](https://www.youtube.com/watch?v=Ueelu-2SalU) [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
