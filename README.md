@@ -68,7 +68,7 @@
 ### Граматикa
 [Часи](https://grammarway.com/ua/all-verb-tenses) <br> <br>
 
-Повторити reported speech (непряма мова)
+Повторити reported speech (непряма мова) та зробити завдання на картинці ![](img/gr2-1.jpg)
 
 ### Німецькa
 Вивчити слова з Wörterbuch 1.docx (словник по Kapitel 1 в групі з Куратором) <br> <br>
