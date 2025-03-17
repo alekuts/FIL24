@@ -56,7 +56,7 @@
 ![](img/tt2.jpg) <br> <br>
 
 ### АЧPП
-Текст та завдання на картинці: ![](img/acrp2-1.jpg) ![](img/acrp2-2.jpg)
+Текст та завдання на картинці: ![](img/acrp2-1.jpg)
 
 ### Фонетикa
 Зробити завдання 4 на 97 сторінці, та 5 6 7 на 100 до цих завданнь йдуть [аудіо](https://drive.google.com/drive/mobile/folders/1wS6gswOli-StjoNAvlZ7RwPoZV7mU7x8) < скачати .rar та розпакувати і прослухувати на CD\_1/2.mp3 Unit 1 на 6 хвилині і  27 секунді ![](img/fn2-1.jpg) ![](img/fn2-2.jpg)
