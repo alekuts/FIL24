@@ -70,6 +70,8 @@ Find out several variants of boat houses (in Europe), floating houses, cave city
 ### Граматикa
 [Часи](https://grammarway.com/ua/all-verb-tenses) <br> <br>
 
+Пройти тест по [reported speech](http://krnu.org/mod/quiz/view.php?id=20635)
+
 
 Повторити reported speech (непряма мова) та зробити завдання на картинці ![](img/gr2-1.jpg)
 
