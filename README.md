@@ -44,7 +44,6 @@
 ![](img/tt1.jpg) <br> <br>
 
 ### АЧРП
-Find out several variants of boat houses (in Europe), floating houses, cave city, igloo, tree house.
 
 ### Фонетика
 
