@@ -63,9 +63,8 @@ What place would you like comfortable and lovely to start your independent life 
 Текст та завдання на картинці: ![](img/acrp2-1.jpg)
 
 ### Фонетикa
-Голосовим повідомленням здати в телеграмі Артеменко (контакт в телеграм групі) тексти що казали на парі  
-
-Зробити завдання 4 на 97 сторінці, та 5 6 7 на 100 до цих завданнь йдуть [аудіо](https://drive.google.com/drive/mobile/folders/1wS6gswOli-StjoNAvlZ7RwPoZV7mU7x8) < скачати .rar та розпакувати і прослухувати на CD\_1/2.mp3 Unit 1 на 6 хвилині і  27 сеiкунді ![](img/fn2-1.jpg) ![](img/fn2-2.jpg)
+Зробити завдання CD\_1/2.mp3 9:30
+5, 6, 7 сторінка 102-103 до цих завданнь йдуть [аудіо](https://drive.google.com/drive/mobile/folders/1wS6gswOli-StjoNAvlZ7RwPoZV7mU7x8) ![](img/fn2-1.jpg)
 
 Подивитись ці три відео [![](https://i.ytimg.com/vi_webp/Ueelu-2SalU/maxresdefault.webp)](https://www.youtube.com/watch?v=Ueelu-2SalU) [![](https://i.ytimg.com/vi/-m-gudHhLxc/maxresdefault.jpg?sqp=-oaymwEmCIAKENAF8quKqQMa8AEB-AHcCIAC0AWKAgwIABABGEEgYShyMA8=&rs=AOn4CLCphE93fGM9xw_hsAB7y_ENcQp1xg)](https://m.youtube.com/watch?v=-m-gudHhLxc) [![](https://i.ytimg.com/vi_webp/4KDkHvvksAE/maxresdefault.webp)](https://m.youtube.com/watch?v=4KDkHvvksAE)
 
