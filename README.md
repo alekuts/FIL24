@@ -57,6 +57,9 @@
 ![](img/tt2.jpg) <br> <br>
 
 ### АЧPП
+Презентація або розповідь: <br>
+What place would you like comfortable and lovely to start your independent life <br> <br>
+
 Текст та завдання на картинці: ![](img/acrp2-1.jpg)
 
 ### Фонетикa
