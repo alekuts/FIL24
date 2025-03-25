@@ -77,7 +77,7 @@ What place would you like comfortable and lovely to start your independent life 
 Повторити reported speech (непряма мова) та зробити завдання на картинці ![](img/gr2-1.jpg)
 
 ### Німецькa
-Вивчити слова з Wörterbuch 1.docx та Wörterbuch 2.docx (словник по Kapitel 1 в групі з Куратором) <br> <br>
+Вивчити слова з Wörterbuch 1.docx та Wörterbuch 2.docx (словники в групі з куратором) <br> <br>
 
 Доробити A13 сторінка 40 ![](img/n2-1.jpg) <br> <br>
 
