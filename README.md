@@ -57,10 +57,13 @@
 ![](img/tt2.jpg) <br> <br>
 
 ### АЧPП
-Презентація або розповідь: <br>
-What place would you like comfortable and lovely to start your independent life <br> <br>
+Завдання на мудлі в розжілі travelling файл text analysis
 
-Текст та завдання на картинці: ![](img/acrp2-1.jpg)
+Task:
+1. Пересказати текст
+2. Make up 8 questions to discuss the text plot
+3. Look up the synonyms to the marked words (виділені слова)
+4. Get ready to make the text analysish (фрази кліше)
 
 ### Фонетикa
 Зробити завдання CD\_1/2.mp3 9:30
