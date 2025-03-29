@@ -57,7 +57,7 @@
 ![](img/tt2.jpg) <br> <br>
 
 ### АЧPП
-Завдання на мудлі в розжілі travelling файл text analysis
+Текст на [мудлі](http://krnu.org/mod/assign/view.php?id=24868) "Text to analyze.docx"
 
 Task:
 1. Пересказати текст
