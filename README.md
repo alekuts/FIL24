@@ -82,7 +82,7 @@ Task:
 ### Німецькa
 Вивчити слова з Wörterbuch 1.docx та Wörterbuch 2.docx (словники в групі з куратором) <br> <br>
 
-Доробити A13 сторінка 40 ![](img/n2-1.jpg) <br> <br>
+Зробити A19 завдання (на кожну картинку по одному стверджувальному, заперечному та питальному реченні) ![](img/n2-1.jpg) <br> <br>
 
 Вивчити gemischte deklination der adjektive ![](img/n2-2.jpg) <br> <br>
 
