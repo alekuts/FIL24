@@ -57,6 +57,8 @@
 ![](img/tt2.jpg) <br> <br>
 
 ### АЧPП
+Скинути аналіз текстк туди ж де файл до середи: <br>
+
 Текст на [мудлі](http://krnu.org/mod/assign/view.php?id=24868) "Text to analyze.docx"
 
 Task:
