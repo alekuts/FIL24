@@ -77,17 +77,5 @@ Task:
 
 Пройти тест по [reported speech](http://krnu.org/mod/quiz/view.php?id=20635)
 
-
-Повторити reported speech (непряма мова) та зробити завдання на картинці ![](img/gr2-1.jpg)
-
 ### Німецькa
 Вивчити слова з Wörterbuch 1.docx та Wörterbuch 2.docx (словники в групі з куратором) <br> <br>
-
-Зробити A19 завдання (на кожну картинку по одному стверджувальному, заперечному та питальному реченні) ![](img/n2-1.jpg) <br> <br>
-
-Вивчити gemischte deklination der adjektive ![](img/n2-2.jpg) <br> <br>
-
-Подивитись це відео
-[![](https://i.ytimg.com/vi_webp/11RkG5BUgxA/maxresdefault.webp?v=65bd73e4)](https://youtu.be/11RkG5BUgxA?si=W86THsy9JXRxpMbM)
-
-
