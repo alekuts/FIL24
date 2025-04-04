@@ -57,15 +57,8 @@
 ![](img/tt2.jpg) <br> <br>
 
 ### АЧPП
-Скинути аналіз текстк туди ж де файл до середи: <br>
+![](img/acrp2-1.jpg)
 
-Текст на [мудлі](http://krnu.org/mod/assign/view.php?id=24868) "Text to analyze.docx"
-
-Task:
-1. Пересказати текст
-2. Make up 8 questions to discuss the text plot
-3. Look up the synonyms to the marked words (виділені слова)
-4. Get ready to make the text analysish (фрази кліше)
 
 ### Фонетикa
 Зробити завдання ![](img/fn2-1.jpg)![](img/fn2-2.jpg) ![](img/fn2-3.jpg) ![](img/fn2-4.jpg) CD\_1/2.mp3 11:30 та 14:48 [аудіо](https://drive.google.com/drive/mobile/folders/1wS6gswOli-StjoNAvlZ7RwPoZV7mU7x8)
