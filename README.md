@@ -75,7 +75,11 @@ Task:
 ### Граматикa
 [Часи](https://grammarway.com/ua/all-verb-tenses) <br> <br>
 
+![](img/gr2-1.jpg)
+
 Пройти тест по [reported speech](http://krnu.org/mod/quiz/view.php?id=20635)
 
 ### Німецькa
 Вивчити слова з Wörterbuch 1.docx та Wörterbuch 2.docx (словники в групі з куратором) <br> <br>
+
+![](img/n2-1.jpg) ![](img/n2-2.jpg)
